@@ -1,2 +1,1 @@
 # ihatenonrice
-# fuck u eric
