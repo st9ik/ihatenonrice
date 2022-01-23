@@ -1,2 +1,2 @@
-# pizza cat#0211 is a bitch
+# pizza cat#0211, poopaya#8688, and [insert name here] are all bitches
 # daniel 4 mod 2022
